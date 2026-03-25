@@ -1,5 +1,9 @@
 <img class="mb-3" style="height:85px" src="https://64.media.tumblr.com/c24062d65ac04f6d26eb454f0dd65187/3f568529a5f57167-81/s400x600/cbd1c2b0ad7f5cbac79d13b9e0e70889c0a8ebec.gifv">
 
+<p align="center">
+<img class="mb-3" style="height:500px" src="https://s1.ezgif.com/tmp/ezgif-1e9532b2ac32d8c0.gif">
+</p>
+
 <h2>૮๑ˊᯅˋ๑ა . . info </h2>
 
 
@@ -16,6 +20,8 @@ PLEASE PLEASE int if u know **tf2** , **madcom**, deltarune!! MOST TF2 AND MADCO
 basic dni cerita, proshippers, darkshippers, trans & homophobic ppl, overly senseitive ppl, **SOME** yumeshippers that take it a **BIT** to far!!
 
 <h2>   </h2>
+
+<img class="mb-3" style="height:85px" src="https://64.media.tumblr.com/c24062d65ac04f6d26eb454f0dd65187/3f568529a5f57167-81/s400x600/cbd1c2b0ad7f5cbac79d13b9e0e70889c0a8ebec.gifv">
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
