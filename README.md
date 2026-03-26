@@ -4,10 +4,14 @@
 <img class="mb-3" style="height:500px" src="https://media.discordapp.net/attachments/1327433283411382303/1486481604502229012/Untitled777_20260325160935.png?ex=69c5a960&is=69c457e0&hm=7d24c61c8b2bdf2eedbe1c9e36661ff72cc1f1c436b90b77d5dc2d85081d105b&=&format=webp&quality=lossless&width=854&height=854">
 </p>
 
+<p align="center">
+   <br> ${\textsf{\color{#FF0000}snipes　༒︎　he　/　him　 ༒︎　 minor  ! !}}$ 
+ <br>
+
 <h2>૮๑ˊᯅˋ๑ა . . info </h2>
 
 
-call me ***sni****pes* !! *mi***norr** . h*e* / **hi**m only
+call me ***sni****pes* !!
 
 hihihihi so uhh m a very cool person, I love talking and joking around, m a HUGE greek in tf2, i like being mean but not in a way thats srs, I also tend to joke around sexually but not that much, so be **WARN**. u can freely whisper to me orr int, I dont mind!! M very active mostly on weekends since I have school to deal with.
 
