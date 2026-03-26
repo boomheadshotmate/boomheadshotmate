@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-   <br> ${\textsf{\color{#FF0000}snipes　༒︎　he　/　him　 ༒︎　 minor  ! !}}$ 
+   <br> ${\textsf{\color{#FF0000}snipes　༒︎　he　/　him　 ༒︎　 minor  ! ! ༒︎  sniper fictkin }}$ 
  <br>
 
 <h2>૮๑ˊᯅˋ๑ა . . info </h2>
