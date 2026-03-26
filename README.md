@@ -1,8 +1,14 @@
 <img class="mb-3" style="height:85px" src="https://64.media.tumblr.com/c24062d65ac04f6d26eb454f0dd65187/3f568529a5f57167-81/s400x600/cbd1c2b0ad7f5cbac79d13b9e0e70889c0a8ebec.gifv">
 
+<html>
+<head>
+</head>
+<body>
+  
 <p align="center">
-<img class="mb-3" style="height:500px" src="https://media.discordapp.net/attachments/1327433283411382303/1486481604502229012/Untitled777_20260325160935.png?ex=69c5a960&is=69c457e0&hm=7d24c61c8b2bdf2eedbe1c9e36661ff72cc1f1c436b90b77d5dc2d85081d105b&=&format=webp&quality=lossless&width=854&height=854">
+  <img src="https://media1.tenor.com/m/u5J6OQLGt9IAAAAd/hug-carrying.gif" width="700">
 </p>
+
 
 <p align="center">
    <br> ${\textsf{\color{#FF0000}snipes　༒︎　he　/　him　 ༒︎　 minor  ! ! }}$ 
