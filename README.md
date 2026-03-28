@@ -19,11 +19,11 @@
 
 call me ***sni****pes* !!
 
-hihihihi so uhh m a very cool person, I love talking and joking around, m a HUGE greek in tf2, i like being mean but not in a way thats srs, I also tend to joke around sexually but not that much, so be **WARN**. u can freely whisper to me orr int, I dont mind!! M very active mostly on weekends since I have school to deal with.
+hihihihi so uhh m a very cool person, I love talking and joking around, m a HUGE greek in tf2, and a sniper fictkin, i like being mean but not in a way thats srs, I also tend to joke around sexually but not that much, so be **WARN**. u can freely whisper to me orr int, I dont mind!! M very active mostly on weekends since I have school to deal with.
 
 <h2>૮⌯'ㅅ'⌯ა . . int </h2>
 
-PLEASE PLEASE int if u know **tf2** , **madcom**, deltarune!! MOST TF2 AND MADCOM I NEED FRIENDS THAT KNOW THESE FANDOMS sobs but just int if u just wanna!! any ships can int as well!!
+PLEASE PLEASE int if u know **tf2** , **madcom**, deltarune!! MOST TF2 AND MADCOM I NEED FRIENDS THAT KNOW THESE FANDOMS sobs but just int if u just wanna!! any ships can int as well 9PLEASE SWORDVAN INT PLEASE ANY DEMOS INT)!!
 
 <h2>૮₍｡•﹏•｡₎ა . . dni </h2>
 
