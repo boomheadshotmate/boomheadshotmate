@@ -23,7 +23,7 @@ hihihihi so uhh m a very cool person, I love talking and joking around, m a HUGE
 
 <h2>૮⌯'ㅅ'⌯ა . . int </h2>
 
-PLEASE PLEASE int if u know **tf2** , **madcom**, deltarune!! MOST TF2 AND MADCOM I NEED FRIENDS THAT KNOW THESE FANDOMS sobs but just int if u just wanna!! any ships can int as well 9PLEASE SWORDVAN INT PLEASE ANY DEMOS INT)!!
+PLEASE PLEASE int if u know **tf2** , **madcom**, deltarune!! MOST TF2 AND MADCOM I NEED FRIENDS THAT KNOW THESE FANDOMS sobs but just int if u just wanna!! any ships can int as well (PLEASE SWORDVAN INT PLEASE ANY DEMOS INT)!!
 
 <h2>૮₍｡•﹏•｡₎ა . . dni </h2>
 
