@@ -6,7 +6,7 @@
 <body>
   
 <p align="center">
-  <img src="https://media1.tenor.com/m/u5J6OQLGt9IAAAAd/hug-carrying.gif" width="700">
+  <img src="https://media.discordapp.net/attachments/1327433283411382303/1488384066637008936/Untitled784_20260330224228.png?ex=69cc952e&is=69cb43ae&hm=6322a07e623b905c0b51ecfdd79d40ad0150f70d656ae4a91cd7abb574c49bc8&=&format=webp&quality=lossless&width=488&height=325" width="700">
 </p>
 
 
@@ -35,7 +35,7 @@ basic dni cerita, proshippers, darkshippers, trans & homophobic ppl, overly sens
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://64.media.tumblr.com/9481f4eba8137c2e4d9aef17d36e2a6a/fafec08859cb1ca7-98/s100x200/8269948a86c4c5cc123c808c3f338560db5c2616.gifv"><img src="https://64.media.tumblr.com/7feac0e00829ee1afa0619272785301f/fafec08859cb1ca7-4d/s100x200/0b9708973fff081ac4a176b7f2738d20e14e9da3.gifv">
+    <img src="https://64.media.tumblr.com/69fb8013f12fafe3012f60fa198dcb41/9da27e0ce1386fdd-78/s100x200/b2e395e86bb1c1e097bb6e5fb90d575945f04c0c.webp"><img src="https://64.media.tumblr.com/ee90460aaa4d0e834fb4966621e12294/a4bd96e78630b131-2e/s100x200/df9cac66f72b4e6e4ea4011b38854fb1b55b7ad8.gifv">
   </a>
 </p>
 
