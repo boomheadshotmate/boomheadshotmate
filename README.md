@@ -19,7 +19,7 @@
 
 call me ***sni****pes* !!
 
-hihihihi so uhh m a very cool person, I love talking and joking around, m a HUGE greek in tf2, and a sniper fictkin(doubles can int!!), i like being mean but not in a way thats srs, I also tend to joke around romantically/sexually but not that much, so be **WARN**. u can freely whisper to me orr int, I dont mind!! M very active mostly on weekends since I have school to deal with.
+hihihihi so uhh m a very cool person, I love talking and joking around, m a HUGE geek in tf2, and a sniper fictkin(doubles can int!!), i like being mean but not in a way thats srs, I also tend to joke around romantically/sexually but not that much, so be **WARN**. u can freely whisper to me orr int, I dont mind!! M very active mostly on weekends since I have school to deal with.
 
 <h2>૮⌯'ㅅ'⌯ა . . int </h2>
 
