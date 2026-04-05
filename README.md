@@ -19,6 +19,12 @@
 
 <img class="mb-3" style="height:85px" src="https://64.media.tumblr.com/c24062d65ac04f6d26eb454f0dd65187/3f568529a5f57167-81/s400x600/cbd1c2b0ad7f5cbac79d13b9e0e70889c0a8ebec.gifv">
 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31salu7glfup6rblt3on7vxsqkh4&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=db0f0f&bar_color_cover=false">
+  </a>
+</p>
+
   </details>
 
 <details align="center">
