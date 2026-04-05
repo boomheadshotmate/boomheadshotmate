@@ -14,16 +14,23 @@
    <br> ${\textsf{\color{#FF0000}snipes　༒︎　he　/　him　 ༒︎　 minor  ! ! }}$ 
  <br>
 
-<h2>૮๑ˊᯅˋ๑ა . . info </h2>
+<h2>${\textsf{\color{#FF0000}†˚ʚ(՞ ܸ. . ܸ՞)ɞ˚† . .}}$</h2>
 
+  </details>
+
+<details align="center">
+
+<summary>ㅤ ${\textsf{\color{#FF0000}﹕ 𝄞 ˶ ૮๑ˊᯅˋ๑ა . . info ˶ ༉ ﹕}}$ </summary
+
+  <a href="" target="_blank">
 
 call me ***sni****pes* !!
 
-hihihihi so uhh m a very cool person, I love talking and joking around, m a HUGE geek in tf2, and a sniper fictkin(doubles can int!!), i like being mean but not in a way thats srs, I also tend to joke around romantically/sexually but not that much, so be **WARN**. u can freely whisper to me orr int, I dont mind!! M very active mostly on weekends since I have school to deal with.
+hihihihi so uhh m a very cool person, I love talking and joking around, m a HUGE geek in tf2, and a sniper fictkin(doubles can int!!), i like being mean but not in a way thats srs, I also tend to joke around romantically/sexually but not that much, so be **WARN**. u can freely whisper to me orr int, I dont mind!! M very active mostly on weekends since I have school to deal with. M sometimes too nervous or shy tp tlk soo.. plz if u can int first I WONT BITE I PROMISE!! 
 
 <h2>૮⌯'ㅅ'⌯ა . . int </h2>
 
-PLEASE PLEASE int if u know **tf2** , **madcom**, bully, and postal !! I NEED FRIENDS THAT KNOW THESE FANDOMS sobs but just int if u just wanna!! any ships can int as well (PLEASE SWORDVAN INT PLEASE ANY DEMOS INT)!!
+PLEASE PLEASE int if u know **tf2** , **madcom**, bully, and postal !! I NEED FRIENDS THAT KNOW THESE FANDOMS sobs but just int if u just wanna!! any ships can int as well!!
 
 <h2>૮₍｡•﹏•｡₎ა . . dni </h2>
 
