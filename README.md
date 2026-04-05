@@ -13,8 +13,11 @@
 <p align="center">
    <br> ${\textsf{\color{#FF0000}snipes　༒︎　he　/　him　 ༒︎　 minor  ! ! }}$ 
  <br>
+ 
 
 <h2>${\textsf{\color{#FF0000}†˚ʚ(՞ ܸ. . ܸ՞)ɞ˚† . .}}$</h2>
+
+<img class="mb-3" style="height:85px" src="https://64.media.tumblr.com/c24062d65ac04f6d26eb454f0dd65187/3f568529a5f57167-81/s400x600/cbd1c2b0ad7f5cbac79d13b9e0e70889c0a8ebec.gifv">
 
   </details>
 
@@ -24,7 +27,7 @@
 
   <a href="" target="_blank">
 
-call me ***sni****pes* !!
+call me ***sni****pes* or mun**dy**!!
 
 hihihihi so uhh m a very cool person, I love talking and joking around, m a HUGE geek in tf2, and a sniper fictkin(doubles can int!!), i like being mean but not in a way thats srs, I also tend to joke around romantically/sexually but not that much, so be **WARN**. u can freely whisper to me orr int, I dont mind!! M very active mostly on weekends since I have school to deal with. M sometimes too nervous or shy tp tlk soo.. plz if u can int first I WONT BITE I PROMISE!! 
 
@@ -38,7 +41,6 @@ basic dni cerita, proshippers, darkshippers, trans & homophobic ppl, overly sens
 
 <h2>   </h2>
 
-<img class="mb-3" style="height:85px" src="https://64.media.tumblr.com/c24062d65ac04f6d26eb454f0dd65187/3f568529a5f57167-81/s400x600/cbd1c2b0ad7f5cbac79d13b9e0e70889c0a8ebec.gifv">
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
